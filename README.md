@@ -1,4 +1,4 @@
-# Audits
+# Public contests
 
 - **X:** [https://x.com/mnedelchev_](https://x.com/mnedelchev_)
 - **Telegram:** [https://t.me/mnedelchev](https://t.me/mnedelchev)
